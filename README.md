@@ -1,3 +1,3 @@
 
-# Thomas  and Jeremy Goncalves
+# Thomas Pujol and Jeremy Goncalves
 
