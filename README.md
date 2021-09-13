@@ -1,1 +1,1 @@
-# DevOps-repo
+# Thomas Pujol and Jeremy Goncalves
